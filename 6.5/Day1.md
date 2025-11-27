@@ -1,47 +1,86 @@
-Ngày 1 – Khởi động & Kiểm tra trình độ
+Day 1 – IELTS (2 hours)
+🎧 1. Listening (45 minutes)
 
-Thời lượng: 2–3h
+Chủ đề: Daily Life / Short Conversations
+Bài nghe (chọn 1):
 
-1. Khởi động (10–15 phút)
+6 Minute English – Digital Detox
 
-Nghe 1 bài podcast/clip tiếng Anh ngắn (3–5 phút) về chủ đề đơn giản (daily life, hobbies).
+6 Minute English – Are you a healthy eater?
 
-Ghi ra 3–5 từ/cụm từ bạn chưa biết.
+6 Minute English – Is luck real?
 
-2. Ngữ pháp & từ vựng cơ bản (30–40 phút)
+Nhiệm vụ:
 
-Ôn lại thì hiện tại đơn, hiện tại tiếp diễn, quá khứ đơn.
+Nghe 3 lần
 
-Học 10–15 từ mới (từ vựng thông dụng trong IELTS Speaking/Reading).
+Ghi lại 10 từ/cụm từ nghe được
 
-Tập đặt câu với từ mới.
+Trả lời 5 câu dưới đây:
 
-3. Kỹ năng Reading (30 phút)
+Questions:
 
-Chọn 1 bài đọc ngắn (200–300 từ).
+Many people spend too much time on ________.
 
-Đọc và trả lời 3–5 câu hỏi: main idea, detail, inference.
+One problem mentioned is that people feel more ________.
 
-Ghi chú từ vựng mới.
+Taking a break can improve your ________.
 
-4. Kỹ năng Listening (30 phút)
+People should set limits to avoid ________.
 
-Nghe lại clip/nghe podcast.
+Balance is more important than ________.
 
-Ghi lại câu hoặc ý chính bạn nghe được.
+📚 2. Vocabulary (25 minutes)
 
-So sánh với transcript nếu có, ghi chú lỗi.
+Từ vựng hôm nay:
 
-5. Kỹ năng Speaking (20–30 phút)
+device
 
-Mở đầu: tự giới thiệu bản thân 1–2 phút.
+distracted
 
-Trả lời 2 câu hỏi đơn giản về bản thân hoặc sở thích.
+productive
 
-Ghi âm lại và nghe lại để nhận biết lỗi phát âm/gram.
+habit
 
-6. Kỹ năng Writing (20–30 phút)
+take a break
 
-Viết 1 đoạn 5–7 câu giới thiệu bản thân.
+balance
 
-Tập trung dùng từ vựng vừa học và ngữ pháp đúng.
+reduce
+
+addicted to
+
+benefit
+
+focus on
+
+Nhiệm vụ:
+
+Đặt 5 câu với các từ trên.
+
+✏️ 3. Grammar (15 minutes)
+
+Present Simple vs. Present Continuous
+
+Điền thì đúng:
+
+People usually ______ (use) their phones when they feel bored.
+
+I ______ (try) to reduce my screen time this week.
+
+My friend ______ (check) social media every morning.
+
+We ______ (work) on improving our English skills now.
+
+Technology ______ (help) people connect more easily.
+
+🎤 4. Speaking (15 minutes)
+
+Part 1 – Daily habits
+Trả lời (2–4 câu mỗi câu):
+
+What do you usually do in the morning?
+
+Do you use your phone a lot during the day?
+
+Is there anything you would like to change about your daily routine?
